@@ -4,8 +4,8 @@
 
 🐾˖° ⸝⸝ **intro**
 
-╰ name(s) ﹕Ivory/Grian/Ranboo/Flower/Lunaria
-︵ prns ﹕They/Moon/Void/It/He/She/Star/Night
+╰ name(s) ﹕Ivory/Lunaria (or kin names)
+︵ prns ﹕They/He/Void
 
 ╰ art; music; coding ⸝ minecraft; fnaf ﹕
 ︵ thx for reading ﹕
