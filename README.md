@@ -5,11 +5,11 @@
 
 🐾˖° ⸝⸝ **intro**
 
-╰ name(s) ﹕Ivory/Lunaria (or kin names)
-︵ prns ﹕They/He/Void
-
-╰ art; music; coding ⸝ minecraft; fnaf ﹕
-︵ thx for reading ﹕
+@ — Ivory/Lunaria ?!   💤
+4𝓉𝑒𝑒𝓃 🪽₊˚.ꪆ.    They/He/Void (or any)   🌀
+  ───── ⋆ ─────
+@ ivysleepy on insta .ᐟ
+     ___ ★₊˚﹟’And the universe said you are not alone ’ 🫐
 
 ⋆⁺₊⋆ ━━━━⊱༒︎ • ༒︎⊰━━━━ ⋆⁺₊⋆
 
